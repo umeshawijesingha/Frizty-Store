@@ -1,0 +1,1 @@
+# Frizty-Store
